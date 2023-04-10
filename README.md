@@ -1,6 +1,5 @@
 ![Captura de tela 2023-04-10 183146](https://user-images.githubusercontent.com/58229792/231003130-1811f50c-cec5-45a4-9a19-0ee1b946e1f9.png)
 ### ḩ̶̮̼͇͓̫̭̼̿ǐ̸̡͈̮̰̈́͂͌ ̷̭͔̍͜t̴̳̱͈̞͚͖̱̜̯̿̈́͐̐̐̊͝h̶̥̄͊̃́̀è̶̡̛̻͎͓̣͑̈͆͘r̵̯̻̙̦̟̭̿͂̃̚͜͝ẻ̶͖͖̭͎͌͌́͘͝
-\
 <!--
 **r-borgess/r-borgess** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
